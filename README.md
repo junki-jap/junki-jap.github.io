@@ -1,1 +1,1 @@
-# junki-jap.github.io
+# junki-jap.github.io/junki.github.io/
